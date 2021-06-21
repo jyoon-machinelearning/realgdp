@@ -4,8 +4,11 @@ If you have any question, please contact YOON Jaehyun via e-mail at j.yoon@aoni.
 
 
 YOON Jaehyun
+
 Assistant Professor
+
 Faculty of Political Science and Economics
+
 Waseda University (Japan)
 
 Copyright 2021 YOON Jaehyun. All rights reserved.
